@@ -7,5 +7,4 @@ All the Best!
 
 You can contact me on:
 +91 9028531389
-+91 9175076229
-abhishekshah1998@hgmail.com
+abhishekshah1998@gmail.com
